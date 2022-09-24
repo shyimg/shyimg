@@ -1,4 +1,8 @@
-- 👋 Hi, I’m @shyimg
-- 👀 I’m interested in nature, plants, dogs, books and travels. And photography. About a million things really.
-- 🌱 I’m currently learning to live with myself.
+- 👋 Hi, I’m Marion
+- 👀 I’m interested in nature, litterature, climbing stuffs, unsual travels, tattoos, lemon pies and hippos
+- 🎧 I could spend hours listening to podcast about gender issues, feminism and true crime
+- 🚲 I really love my bike (and my kayak)
+- 🐶🐹 I share my flat with a dog and a guinea pig
+- 🌱 I’m currently learning to live with myself
+- ☕ And I drink too much coffee
 - 📫 How to reach me : marion.emi.tosi[at]gmail[dot]com
